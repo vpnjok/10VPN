@@ -23,7 +23,7 @@
 - linux 推荐 shell clash 或者 clash for windows 的 linux 版本
   
 
-![十大机场梯子](https://github.com/user-attachments/assets/5d6b4a74-28d1-41ba-88ff-0988a429890b)
+![十大机场梯子](https://www.cnvintage.org/assets/files/2024-12-30/1735574527-419857-10.jpeg)
 
 
 
